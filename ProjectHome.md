@@ -1,0 +1,1 @@
+Ever forget where you spend you money? MintTrack can help! MintTrack is an easy to use personal spending tracker for the every day person. Anyone with an Android powered device can take control of there spending and get their sanity back. Know where your money is going and get MintTrack!
